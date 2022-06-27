@@ -1,6 +1,6 @@
 ## ij.start.canon - canon.com/ijsetup in June 2022
 
-##Use ij.start canon to set up your Canon product. Get inkjet Canon printer and scanner support here. You can learn for Canon PIXMA, imagePROGRAF, MAXIFY, CanoScan, and others.
+Use ij.start canon to set up your Canon product. Get inkjet Canon printer and scanner support here. You can learn for Canon PIXMA, imagePROGRAF, MAXIFY, CanoScan, and others.
 
 Canon ij printer is a complete solution for multiple works that you can easily learn to set up from ij.start.cannon and get a better experience. This is the official online support site that provides you Canon products’ online manuals, function information, and more. What’s more at the http //ij.start.canon site is download and installation steps for Canon ij setup that is required for the complete Canon set up process. So check out the more steps below.
 
