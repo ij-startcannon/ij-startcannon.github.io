@@ -1,4 +1,4 @@
-## <title>ij.start.canon | Download Canon Printer Setup in June 2022<title>
+## <title>ij.start.canon | Download Canon Printer Setup in June 2022</title>
 
 You can use the [editor on GitHub](https://github.com/ij-startcannon/ij-startcannon.github.io/edit/main/README.md) to maintain and preview the content for your website in Markdown files.
 
