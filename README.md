@@ -1,4 +1,5 @@
-## <head><meta name="msvalidate.01" content="BAF6D3461EFBE28531EC8E3925F588B9"/>
+## <head><title>ij start canon</title>
+<meta name="msvalidate.01" content="BAF6D3461EFBE28531EC8E3925F588B9"/>
 ij.start.canon - canon.com/ijsetup in June 2022</head>
 
 Use ij.start canon to set up your Canon product. Get inkjet Canon printer and scanner support here. You can learn for Canon PIXMA, imagePROGRAF, MAXIFY, CanoScan, and others.
